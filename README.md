@@ -1,1 +1,1 @@
-# Vpn-lockup
+https://proxy.ui
